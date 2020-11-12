@@ -6,7 +6,7 @@
 
 <br><br>Địa chỉ: 5 Hồ Học Lãm, phường 16, Quận 8, Thành phố Hồ Chí Minh
 <br>Phone: 0372113076
-<br>Email: <b><a href="bears.paw.net@gmail.com">bears.paw.net@gmail.com</a></b>
+<br>Email: <b><a href="broadbents.uk@gmail.com">broadbents.uk@gmail.com</a></b>
 
 <br><br>Mạng xã hội:
 <br><a href="https://broadbentsuk.hpage.com/">https://broadbentsuk.hpage.com/</a>
